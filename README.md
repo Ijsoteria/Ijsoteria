@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ijsoteria.
+- 👀 I’m new here and interested in making friends who can help develop my tech skills.
+- 🌱 I’m currently learning Product designs and graphic designer/animation.
+- 💞️ I’m looking to collaborate on projects dynamic teams.
+- 📫 kindly send a DM and lets do some work.
